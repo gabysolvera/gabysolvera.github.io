@@ -1,1 +1,0 @@
-# gabysolvera.github.io
